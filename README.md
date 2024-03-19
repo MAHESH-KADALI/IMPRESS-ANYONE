@@ -9,3 +9,5 @@ NO, IT IS NOT COMPLETED YET BUT TODAY (I.E 19th MARCH 2024) IT WILL BE COMPLETED
 
 # HOW TO USE THIS CODE 
 ASK ME ON INSTAGRAM I'LL SAY.
+
+[![instagram] (https://instagram.com)] (https://instagram.com/mahesh_namikaze)
